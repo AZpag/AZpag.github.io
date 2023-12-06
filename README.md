@@ -10,3 +10,9 @@ Power racquets give you more power in your badminton shots, but they slow down y
 ![Yonex Astrox 100zz](https://triplepointsports.com/cdn/shop/articles/AX100ZZ-N_00-900x900.jpg?v=1683539035)
 ### 2. Yonex Voltric Z-Force II
 ![Yonex Voltric Z-Force](https://lzd-img-global.slatic.net/g/p/2338d6c23e58890f45ca74ef99e3845d.jpg_720x720q80.jpg)
+### 3. Yonex Astrox 99 Pro
+![Yonex Astrox 99 Pro](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTNYKdCQ8KZLcp6HptyXAIu0LibIbC5UJDpmCVlm4jUZ3RICOU7q4_9DWqEcJ0rAzzWOfQ&usqp=CAU)
+### 4. Li-Ning 3D Calibar X Boost
+![Li-Ning 3D Calibar X Boost](https://www.liningthailand.com/image/cache/catalog/Technology/Calibar-series-734x734.jpg)
+### 5.  Yonex Voltric Lite 25i
+![ Yonex Voltric Lite 25i](https://rukminim2.flixcart.com/image/850/1000/xif0q/racquet/5/h/y/-original-imagtgbkczhwsqhg.jpeg?q=90)
