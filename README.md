@@ -20,3 +20,14 @@ Power racquets give you more power in your badminton shots, but they slow down y
 This type of badminton racquets are very **user friendly**; whether you are a beginner or advanced player.
 Perfect for **“all-rounders”** because the weight is evenly distributed within the badminton racquet, this makes it easy for both generating power as well as superb racquet handling.
 Even balance racquets are very popular among doubles players. If your game consists of an even combination of clears, drops and smashes, an even balanced racquet can help you deliver the best in your games.
+## Top 5 Best Even Balance Rackets
+### 1. Victor Thruster F Enhanced Edition
+![Victor Thruster F Enhanced Edition]( https://i.ebayimg.com/images/g/ZlAAAOSwpJZkEHym/s-l400.png )
+### 2. Yonex Arcsaber 11 Pro
+![Yonex Arcsaber 11 Pro]( https://lzd-img-global.slatic.net/g/p/ad492300677fc573515b7651699ae62d.jpg_720x720q80.jpg)
+### 3. Yonex Arcsaber 7 Pro
+![Yonex Arcsaber 7 Pro](https://img.ws.mms.shopee.ph/sg-11134201-7qvfi-lgis14fbxozn7c)
+### 4. Victor DriveX 9X
+![Victor DriveX 9X](https://media.karousell.com/media/photos/products/2023/3/14/victor_drive_x_9x_new_original_1678777240_d872dd89_progressive)
+### 5. Victor Bravesword 12
+![Victor Bravesword 12](https://down-ph.img.susercontent.com/file/05b61f6c3d17b82bb0bbc24799196b42)
