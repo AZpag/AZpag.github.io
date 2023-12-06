@@ -16,3 +16,7 @@ Power racquets give you more power in your badminton shots, but they slow down y
 ![Li-Ning 3D Calibar X Boost](https://www.liningthailand.com/image/cache/catalog/Technology/Calibar-series-734x734.jpg)
 ### 5.  Yonex Voltric Lite 25i
 ![ Yonex Voltric Lite 25i](https://rukminim2.flixcart.com/image/850/1000/xif0q/racquet/5/h/y/-original-imagtgbkczhwsqhg.jpeg?q=90)
+## Even Balance Rackets
+This type of badminton racquets are very **user friendly**; whether you are a beginner or advanced player.
+Perfect for **“all-rounders”** because the weight is evenly distributed within the badminton racquet, this makes it easy for both generating power as well as superb racquet handling.
+Even balance racquets are very popular among doubles players. If your game consists of an even combination of clears, drops and smashes, an even balanced racquet can help you deliver the best in your games.
